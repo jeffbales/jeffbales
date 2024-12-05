@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @jeffbales
 - 👀 I’m interested in always learning.
 - 🌱 I’m currently learning to Open Science.
-- 💞️ I’m looking to collaborate on nothing, so far.
 - 😄 Pronouns: He
 - ⚡ Fun fact: I had three strokes and I'm still learning.
 
